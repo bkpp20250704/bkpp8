@@ -16,4 +16,4 @@
 
 总的来说，随着网络技术的发展，观看日本AV免费资源变得越来越简单和安全。只要选对平台，合理保护隐私，就能轻松享受丰富多样的日本AV内容，满足不同用户的观看需求。未来，这些免费资源网站也将不断完善，带来更优质的服务和体验，让用户能够无忧无虑地畅享视觉盛宴。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bkpp20250704/bkpp8 ）</span>
